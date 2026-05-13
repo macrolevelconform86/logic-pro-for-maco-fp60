@@ -1,4 +1,4 @@
-# 
+# Get the ultimate Logic Pro for macOS transition with Logic Pro for macOS rare Transition: normalization & multi-cam-editing. Featuring normalization and multi-cam-editing, it's
 
 
 
